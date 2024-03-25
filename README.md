@@ -1,1 +1,1 @@
-# The code is being organized and will be posted later.VDCRL
+# The code is being organized and will be posted later
